@@ -1,1 +1,3 @@
-Nama: Riska Khoiriyani NIM: 556044
+Nama: Riska Khoiriyani
+NIM: 556044
+Universitas Gadjah Mada
